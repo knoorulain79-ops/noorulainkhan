@@ -1,2 +1,0 @@
-# noorulainkhan
-My personal portfolio
